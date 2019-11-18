@@ -1,2 +1,3 @@
 Hello, my name is Jing Yuan Wang
-I would like to eat right now
+
+I was born in China, and came to US in the middle of my 3rd grade. Right now, I am a tall guy that weights alot .w.
